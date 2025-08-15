@@ -1,5 +1,8 @@
-## Hi there 👋
-
+Layed off ## Hi there 👋
+today im just sitting in my car
+servng as a key contributer of the tru
+Checking the mail box
+callng dispatch 
 <!--
 **Fazeclutch/Fazeclutch** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
@@ -13,4 +16,6 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->
+-->applying for unemployment
+picking up my last paycheck#
+Applying for work over the internet 
